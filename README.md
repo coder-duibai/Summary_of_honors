@@ -7,7 +7,7 @@
 
 学校：清华大学
 
-邮箱：li-jz18@mails.tsinghua.edu.cn 
+邮箱：li-jz18@tsinghua.org.cn
 </font>
 
 ## 实习/创业经历：
