@@ -92,6 +92,6 @@
 2013-2014年南京航空航天大学“优秀团队”
 </font>
 ## 媒体相关报道：
-[媒体相关报道链接](http://k.sina.com.cn/article_6364135375_17b54ffcf00100581r.html?cre=tianyi&mod=pcpager_focus&loc=4&r=9&doct=0&rfunc=100&tj=none&tr=9)
+[媒体相关报道链接](http://k.sina.com.cn/article_6434502813_17f86b89d001002ybn.html)
 
 
