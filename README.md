@@ -32,6 +32,7 @@
 
 ## 本科阶段获奖情况：
 ![](https://github.com/coder-duibai/Summary_of_honors/blob/master/certificate.jpeg)
+
 2018年南京航空航天大学“大学成就奖”入围
 
 2018年南京航空航天大学校三好学生
